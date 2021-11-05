@@ -10,8 +10,6 @@ I come from southeast China and I did my undergrad at Peking University. Now I a
   + watching movies (My favorite director is Kieślowski.)
   + visiting museums
 
-Welcome to douban.com (a Chinese website for people to mark and review books, movies, TV series, video games) to share your favorite books, movies and games with me. This is my personal page: <https://www.douban.com/people/92626129/> 
-
 PS: Here is a comic book about PhD life. It's very funny. Go and check it!
 ![Image](comic.jpg)
 
